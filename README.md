@@ -4,7 +4,7 @@
 
 **Building in San Francisco.** Founder and content creator, Paris to SF.
 
-20M+ views on Instagram. UC Berkeley. Vibecoded by my parents with love and tokens.
+25M+ views on Instagram. UC Berkeley. Vibecoded by my parents with love and tokens.
 
 ## Now
 
